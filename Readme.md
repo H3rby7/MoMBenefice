@@ -12,7 +12,7 @@ Es ist der 23. Juli 1988.
 
 Ihr seid zu einer Benefitsveranstaltung der Donningtons eingeladen. 
 Die Donningtons sind das einflussreichste und angesehenste Geschlecht in der Kleinstadt Atcham. 
-Atcham ist und war schon immer streng katholisch, konservativ und so ist es auch nicht weiter verwunderlich, dass die Dorrington's dieses Jahr eine Benefitsveranstaltung zu Gunsten von Atchams Waisenhaus veranstalten.
+Atcham ist und war schon immer streng katholisch, konservativ und so ist es auch nicht weiter verwunderlich, dass die Dorrington's heute zu einer Benefitsveranstaltung laden.
 
 Das Anwesen der Donnington's liegt etwas außerhalb der Stadt und ist hell erleuchtet, als ihr dort ankommt. 
 Überall laufen Kinder herum und die Erwachsenen betreiben ihren üblichen Smalltalk. 
